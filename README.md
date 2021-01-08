@@ -1,6 +1,3 @@
-# 171410045
-
-## Biodata
 
 
 ## Aplikasi Penjualan Komputer
